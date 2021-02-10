@@ -1,0 +1,2 @@
+The ingredients are :-
+3 cups cake flour, 1 teaspoon baking soda, 2 tablespoon unsweentened natural cocoa powder, 1/2 teaspoon salt , 1/2 cup unsalted butter(softenend to room temp.), 2 cups granulated sugar, 1 cup canola or vegetable oil.
